@@ -1,0 +1,1 @@
+# fb-all-frends-accept-script-console
